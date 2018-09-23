@@ -3,3 +3,4 @@
 qq：1342509326
 电话：18954030107
 邮箱：lijunhao@pku.edu.cn
+![images](https://github.com/lijunhaofree/homepage/blob/master/IMG_20180124_101408.jpg)
